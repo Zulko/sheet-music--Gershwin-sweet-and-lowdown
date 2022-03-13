@@ -6,3 +6,5 @@
 - [Old cover of the transcription](https://www.youtube.com/watch?v=YgJ3PmMrurA) (inexact, played from memory after losing the score).
 
 The music is in the public domain (published in 1926) and so is the transcription. Enjoy!
+
+Thanks to Luigi Ranalli for providing the piano roll scan.
